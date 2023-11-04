@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on FLUTTER<br>🌱 I’m currently learning RUST
+🔭 STUDY!!!!!!!!!!!!!
 
 
 # 💻 Tech Stack:
